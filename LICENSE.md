@@ -1,4 +1,4 @@
-# 
+# Seguro dydx trading bot ferramentas para Mac OS | Atualizado dydx trading bot ferramentas para PC Windows. Com análise de book de ordens e controle de escorregamento — otimizado para máximo desempenho em cada plataforma.
 
 
 
